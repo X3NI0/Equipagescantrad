@@ -1,1 +1,1 @@
-Site web officiel par Xenio pour l'Equupage scantrad
+Site web officiel par Xenio pour l'Equipage scantrad
